@@ -1,6 +1,6 @@
 # Hi, I'm Kamogelo 👋
 
-🎓 BSc Mathematical Sciences Graduate  
+🎓 BSc Mathematical Sciences with Applied Mathematics and Mathematics Graduate  
 📊 Aspiring Data Analyst
 📍 South Africa  
 
